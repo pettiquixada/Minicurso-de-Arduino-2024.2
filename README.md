@@ -21,6 +21,6 @@ Este repositório contém:
 
 Se tiver dúvidas ou sugestões, entre em contato conosco:
 - **E-mail:** pettiqx@ufc.br  
-- **Instagram:** [@petti_ufc](https://www.instagram.com/pettiqx/)
+- **Instagram:** [@pettiqx](https://www.instagram.com/pettiqx/)
 
 ✨ Esperamos que você aproveite este minicurso e que ele seja uma experiência enriquecedora!
